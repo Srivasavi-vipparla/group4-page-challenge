@@ -9,6 +9,8 @@
 
 * Watching TV
 
+* [GitHub Link Chandler](https://github.com/chanWright)
+
 ## Shivani Tangellapally 
 
 
@@ -30,7 +32,7 @@
 
 * gardening
 
-
+* [GitHub Link Shivani](https://github.com/shivani-ta)
 
 
 
@@ -40,3 +42,4 @@
 * Dancing
 * Cooking
 * Movies
+* [GitHub Link Sri Vasavi](https://github.com/Srivasavi-vipparla)
