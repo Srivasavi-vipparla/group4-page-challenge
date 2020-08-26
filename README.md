@@ -23,7 +23,12 @@
 * writing
 
 * swimming
-* eating
+
+* baking
+
+* listening songs
+
+* gardening
 
 
 
