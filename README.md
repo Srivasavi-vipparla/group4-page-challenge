@@ -17,6 +17,12 @@
 
 * cooking
 
+* browsing
+
+* writing
+
+* swimming
+
 
 
 
