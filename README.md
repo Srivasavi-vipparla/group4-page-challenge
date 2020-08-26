@@ -3,10 +3,11 @@
 
 ## Chandler Wright 
 
+* Playing video games
 
+* Fishing
 
-
-
+* Watching TV
 
 ## Shivani Tangellapally 
 
